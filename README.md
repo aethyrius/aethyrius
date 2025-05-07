@@ -1,2 +1,2 @@
 Welcome to my GitHub for my personal projects!
-There's nothing really to see here yet, but I'm working on it!
+I'm always looking for a new project to work on, so stay tuned!
